@@ -1,1 +1,1 @@
-# islamic
+# Smallest Surah Collection
